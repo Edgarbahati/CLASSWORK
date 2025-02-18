@@ -1,2 +1,2 @@
 # CLASSWORK
-BAHATI GAPFIZI EDGAR, MURAMBA Josue, Kazingufu Romuald,irakoze joel 2
+BAHATI GAPFIZI EDGAR, MURAMBA Josue
